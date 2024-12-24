@@ -78,3 +78,7 @@
 ## 定制方案
 
 如果您需要定制的水印方案，欢迎在微信公众号平台留言，我们将及时回复并提供帮助。
+公众号：yuezhu2025
+
+二维码：![099b818e85ffaf8edcad01ee9b4b5c5](https://github.com/user-attachments/assets/38be3cca-0334-4b77-a0df-4d6e60ae2102)
+
